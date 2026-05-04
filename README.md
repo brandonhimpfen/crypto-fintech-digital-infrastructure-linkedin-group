@@ -1,1 +1,1 @@
-# crypto-fintech-digital-infrastructure-linkedin-group
+# Crypto, FinTech & Digital Infrastructure LinkedIn Group
